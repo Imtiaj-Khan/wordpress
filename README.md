@@ -1,5 +1,46 @@
-# wordpress (newsportal)
+# wordpress 
 live project 
+https://amariinterior.com.bd/
+https://chitroninterior.com/
+https://landisglobal.com/
+http://classicarchitectsbd.com/
+https://tamlbd.com/
+https://riverhome.ae/
 https://dhakabangla.net/
 https://najat24news.com/
 https://bangladesh-news.com/
+https://cbeaux.com/
+https://paakhihome.com/
+https://jidiamonds.com/
+https://britishknights.com/
+https://mytshirtzone.com/
+https://rosielou.com.au/
+https://dripp.com/
+https://home.lamarzoccousa.com/
+https://jococups.com/
+https://www.essexcricketshop.co.uk/
+https://www.antiquejewellerycompany.com/
+https://nuriabeauty.com/
+https://jidiamonds.com/
+https://www.stemsbrooklyn.com/
+https://www.nordicware.com.au/
+https://gooddyeyoung.com/
+https://sproutliving.com/
+https://kellylynch.online/
+https://2houndsdesign.com/
+https://millionairegallery.com/
+https://www.newtwist.com/
+https://brushandpencil.com/
+https://www.brownbrothers.com.au/
+https://nordicappeal.com/
+https://flwr.co.nz
+https://rotimatic.com/
+https://gilmour.com/
+https://joecoffeecompany.com/
+https://iluminashop.com/
+http://www.suttontools.com.au
+https://raybuck.com/
+https://ksportusa.com/
+https://vilros.com/
+https://www.turkeymerck.com/
+
